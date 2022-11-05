@@ -1,0 +1,1 @@
+Linking my account SCOTTY4G on GitHub with my address 5F9dLqHxwr1whDFyqY1Xit7xasCn6vYKc6uvhnkWwqcQ2H4R on Substrate in mycryptoprofile.io, and the challenge code is: 0623dabb52c1e369ffc3c081b05e1c50. #LitentryVerifyMyAddress
